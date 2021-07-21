@@ -1,0 +1,7 @@
+I'm a London-based creative who's interested in human behaviour and building useful things.
+
+In the past, I've worked with brands like Disney, Sky and Amazon. Currently, I'm a postgraduate student studying UX design, interested in virtual and augmented reality.
+
+Instagram @truman_delusion
+
+Twitter @n3wmach1n3
